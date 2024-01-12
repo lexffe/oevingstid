@@ -1,0 +1,2 @@
+# oevingstid
+øvingstid | øvetid | övningstid
